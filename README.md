@@ -22,7 +22,7 @@ decisions with confidence.
 
 ## 📫 Let's Connect
 
-[LinkedIn](https://linkedin.com/in/emilyfueger) | [Email](mailto:emily@fueger.net)
+[LinkedIn](https://linkedin.com/in/emilyfueger)
 
 ---
 
